@@ -1,16 +1,42 @@
-## Hi there 👋
+<img width="3156" height="1968" alt="1000077612" src="https://github.com/user-attachments/assets/4d155a8f-d214-4d9c-8187-c8e8a852068e" />
 
-<!--
-**Viinixxs/Viinixxs** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+### ☕︎ 𝐏o𝐧y𝐭o𝐰n 𝐒t𝐮f𝐟s
 
-Here are some ideas to get you started:
+• 𝐔sually on Docks, STH area, or CRK area, Sometimes i am also in the rhythm game area (under spawn). 
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+• 𝐌ost of the time i prefer to sit alone, but sometimes i might be sitting with friends. 
+
+• 𝐖2I prefered, i go AFK and offtab alot, expect a late response. 
+
+• 𝐖on't initiate interaction first, unless i am feeling courageous. 
+
+• 𝐂+h always okay even if not stated! (unless i am on dniuf/dniuc/dniuid) i have heavy cudcomf, and i'll always love some company. I don't talk often when sitting w someone, but idm getting whisps or if i feel like it i might start a convo. Will do the shaking head PT emote if i need to leave. 
+
+• 𝐒emi-verbal but will try my best to match your energy. 
+
+<img width="1227" height="186" alt="1000077754" src="https://github.com/user-attachments/assets/207e13e1-f8ea-4fd5-8f8d-904a0ba7fb31" />
+
+### ☾ 𝐏T 𝐒t𝐚t𝐮s
+• 🌙 𝐀way = Online or Semi-AFK, Public chat on, Responsive, fast-medium replies. 
+
+• ⛔ 𝐁usy = AFK or Offtab, public chat off, Mostly unresponsive, w2i, slow & short replies. 
+
+<img width="1227" height="186" alt="1000077754" src="https://github.com/user-attachments/assets/351a59bc-4466-4c66-8b8c-18abfe315f76" />
+
+### ✘ Uhh other stuffs
+
+• -12 and +18 Int with care/caution
+
+• 𝐈 tend to take small hiatus without telling due to school stuffs. 
+
+• 𝐈dm kin doubles, feel free to int, i dont bite ^^.
+
+• 𝐈 forget people often, if ur one of my friends whom ive lost contact with, feel free to remind me of who you are, unless we ended on bad terms then i prolly won't talk to you. 
+
+• 𝐈 sometimes act differently towards different people and friends. 
+
+• 𝐈dgaf about ships, i am indifferent towards most of them, though i do NOT tolerate problematic ships or ships considered as proship/darkship.
+
+• 𝐈 make insults as a joke towards friends sometimes, please feel free to tell me if i ever said or done anything that hurts your feeling.
+
+• 𝐖ant to contact me? add me in discord i am `@viinixxs`, My dms are always open, but expect late replies. For other socials (tiktok, insta, etc) please ask me for it directly, i don't like giving some of my socials away unless asked for it. 
