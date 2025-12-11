@@ -17,15 +17,14 @@
 
 • 𝐒emi-verbal but will try my best to match your energy. 
 
-<img width="798" height="400" alt="1000084633" src="https://github.com/user-attachments/assets/51e21b47-47c1-406a-9f2e-f8e886c8fd93" />
+<img width="798" height="159" alt="1000084634" src="https://github.com/user-attachments/assets/390a4060-6ff0-46ef-bd20-138f1e5b902b" />
 
 ### ☾ 𝐏T 𝐒t𝐚t𝐮s
+
 • 🌙 𝐀way = Online or Semi-AFK, Public chat on, Responsive, fast-medium replies. 
 
 • ⛔ 𝐁usy = AFK or Offtab, public chat off, Mostly unresponsive, w2i, slow & short replies. 
-
-<img width="798" height="400" alt="1000084634" src="https://github.com/user-attachments/assets/fa0c6b25-6ec9-43dc-8dc5-e679157c5180" />
-
+<img width="798" height="159" alt="1000084666" src="https://github.com/user-attachments/assets/0214e474-02ad-4dd6-8510-a392501eab4d" />
 ### ✘ Uhh other stuffs
 
 • -12 and +18 Int with care/caution
