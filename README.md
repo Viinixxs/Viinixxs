@@ -1,6 +1,6 @@
 <img width="798" height="400" alt="1000084647" src="https://github.com/user-attachments/assets/725cd4cc-1484-412c-9e24-b4a0863e281b" />
 
-<img width="2000" height="900" alt="1000084662" src="https://github.com/user-attachments/assets/03ae88d8-e147-43d2-a2d9-4f05b7d0dd0e" />
+<img width="2000" height="1340" alt="1000084662" src="https://github.com/user-attachments/assets/03ae88d8-e147-43d2-a2d9-4f05b7d0dd0e" />
 
 
 ### ☕︎ 𝐏o𝐧y𝐭o𝐰n 𝐒t𝐮f𝐟s
