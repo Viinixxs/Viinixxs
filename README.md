@@ -1,4 +1,7 @@
-<img width="3156" height="1968" alt="1000077612" src="https://github.com/user-attachments/assets/4d155a8f-d214-4d9c-8187-c8e8a852068e" />
+<img width="798" height="159" alt="1000084647" src="https://github.com/user-attachments/assets/725cd4cc-1484-412c-9e24-b4a0863e281b" />
+
+<img width="1930" height="841" alt="1000084662" src="https://github.com/user-attachments/assets/03ae88d8-e147-43d2-a2d9-4f05b7d0dd0e" />
+
 
 ### ☕︎ 𝐏o𝐧y𝐭o𝐰n 𝐒t𝐮f𝐟s
 
@@ -14,14 +17,14 @@
 
 • 𝐒emi-verbal but will try my best to match your energy. 
 
-<img width="1227" height="186" alt="1000077754" src="https://github.com/user-attachments/assets/207e13e1-f8ea-4fd5-8f8d-904a0ba7fb31" />
+<img width="798" height="159" alt="1000084633" src="https://github.com/user-attachments/assets/51e21b47-47c1-406a-9f2e-f8e886c8fd93" />
 
 ### ☾ 𝐏T 𝐒t𝐚t𝐮s
 • 🌙 𝐀way = Online or Semi-AFK, Public chat on, Responsive, fast-medium replies. 
 
 • ⛔ 𝐁usy = AFK or Offtab, public chat off, Mostly unresponsive, w2i, slow & short replies. 
 
-<img width="1227" height="186" alt="1000077754" src="https://github.com/user-attachments/assets/351a59bc-4466-4c66-8b8c-18abfe315f76" />
+<img width="798" height="159" alt="1000084634" src="https://github.com/user-attachments/assets/fa0c6b25-6ec9-43dc-8dc5-e679157c5180" />
 
 ### ✘ Uhh other stuffs
 
@@ -40,3 +43,6 @@
 • 𝐈 make insults as a joke towards friends sometimes, please feel free to tell me if i ever said or done anything that hurts your feeling.
 
 • 𝐖ant to contact me? add me in discord i am `@viinixxs`, My dms are always open, but expect late replies. For other socials (tiktok, insta, etc) please ask me for it directly, i don't like giving some of my socials away unless asked for it. 
+
+<img width="798" height="159" alt="1000084647" src="https://github.com/user-attachments/assets/607eef7e-42c7-4a04-9455-30b1d21a9200" />
+
