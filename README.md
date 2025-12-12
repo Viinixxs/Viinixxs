@@ -3,7 +3,7 @@
 <img width="2000" height="1340" alt="1000084662" src="https://github.com/user-attachments/assets/03ae88d8-e147-43d2-a2d9-4f05b7d0dd0e" />
 
 
-### ☕︎ 𝐏o𝐧y𝐭o𝐰n 𝐒t𝐮f𝐟s
+### ❌ ; 𝐏o𝐧y𝐭o𝐰n 𝐒t𝐮f𝐟s
 
 • 𝐔sually on Docks, STH area, or CRK area, Sometimes i am also in the rhythm game area (under spawn). 
 
@@ -21,13 +21,14 @@
 
 <img width="798" height="159" alt="1000084634" src="https://github.com/user-attachments/assets/390a4060-6ff0-46ef-bd20-138f1e5b902b" />
 
-### ☾ 𝐏T 𝐒t𝐚t𝐮s
+### ❌ ; 𝐏T 𝐒t𝐚t𝐮s
 
 • 🌙 𝐀way = Online or Semi-AFK, Public chat on, Responsive, fast-medium replies. 
 
 • ⛔ 𝐁usy = AFK or Offtab, public chat off, Mostly unresponsive, w2i, slow & short replies. 
 <img width="798" height="159" alt="1000084666" src="https://github.com/user-attachments/assets/0214e474-02ad-4dd6-8510-a392501eab4d" />
-### ✘ Uhh other stuffs
+
+### ❌ ; Uhh other stuffs
 
 • -12 and +18 Int with care/caution
 
