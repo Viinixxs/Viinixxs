@@ -34,7 +34,7 @@
 
 • 𝐈 tend to take small hiatus without telling due to school stuffs. 
 
-• 𝐊in doubles iwc, most of the time idm doubles interacting, but i could get pretty awkward and or defensive. 
+• 𝐊in doubles iwc, most of the time idm doubles interacting, but i could get pretty awkward and or cautious.  
 
 • 𝐈 forget people often, if ur one of my friends whom ive lost contact with, feel free to remind me of who you are, unless we ended on bad terms then i prolly won't talk to you. 
 
