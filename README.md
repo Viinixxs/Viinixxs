@@ -11,6 +11,8 @@
 
 • 𝐖2I prefered, i go AFK and offtab alot, expect a late response. 
 
+<img width="798" height="159" alt="1000084738" src="https://github.com/user-attachments/assets/94f02a06-702b-4260-bd22-4012c97ca008" />
+
 • 𝐖on't initiate interaction first, unless i am feeling courageous. 
 
 • 𝐂+h always okay even if not stated! (unless i am on dniuf/dniuc/dniuid) i have heavy cudcomf, and i'll always love some company. I don't talk often when sitting w someone, but idm getting whisps or if i feel like it i might start a convo. Will do the shaking head PT emote if i need to leave. 
@@ -34,6 +36,8 @@
 • 𝐈dm kin doubles, feel free to int, i dont bite ^^.
 
 • 𝐈 forget people often, if ur one of my friends whom ive lost contact with, feel free to remind me of who you are, unless we ended on bad terms then i prolly won't talk to you. 
+
+<img width="798" height="159" alt="1000084743" src="https://github.com/user-attachments/assets/9db42d38-d1ff-4c49-bd60-845be7ef161a" />
 
 • 𝐈 sometimes act differently towards different people and friends. 
 
