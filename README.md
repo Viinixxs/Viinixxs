@@ -40,7 +40,7 @@
 
 <img width="798" height="159" alt="1000084743" src="https://github.com/user-attachments/assets/9db42d38-d1ff-4c49-bd60-845be7ef161a" />
 
-• 𝐈 sometimes act differently towards different people and friends. 
+• 𝐍ot a big fan of most slurs even if you can reclaim, please limit using them around me. 
 
 • 𝐈dgaf about ships, i am indifferent towards most of them, though i do NOT tolerate problematic ships or ships considered as proship/darkship.
 
