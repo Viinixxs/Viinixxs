@@ -5,7 +5,7 @@
 
 ### ❌ ; 𝐏o𝐧y𝐭o𝐰n 𝐒t𝐮f𝐟s
 
-• 𝐔sually on Docks,or CRK area, Sometimes i am also in the rhythm game area (under spawn) or market. 
+• 𝐔sually on Docks,or CRK area, Sometimes i am also in the rhythm game area (under spawn) or market. Sometimes i also sit around safe server 2 or safe indo when i am feeling moody to clear my head, iwec if u see me there. 
 
 • 𝐌ost of the time i prefer to sit alone, but sometimes i might be sitting with friends. 
 
