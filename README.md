@@ -15,7 +15,7 @@
 
 • 𝐖on't initiate interaction first, unless i am feeling courageous. 
 
-• 𝐂+h always okay even if not stated! (unless i am on dniuf/dniuc/dniuid) i have heavy cudcomf, and i'll always love some company. I don't talk often when sitting w someone, but idm getting whisps or if i feel like it i might start a convo. Will do the shaking head PT emote if i need to leave. 
+• 𝐂+h always okay even if not stated! (unless i am on dniuf/dniuc/dniuid) i have heavy cudcomf, and i'll always love some company. I don't talk often when sitting w someone, but idm getting whisps or if i feel like it i might start a convo. Will do the shaking head PT emote if i need to leave. + i like cuddling ppl with c+h on their names. 
 
 • 𝐒emi-verbal but will try my best to match your energy. 
 
