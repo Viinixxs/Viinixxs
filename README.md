@@ -36,6 +36,8 @@
 
 • 𝐈 forget people often, if ur one of my friends whom ive lost contact with, feel free to remind me of who you are, unless we ended on bad terms then i prolly won't talk to you. 
 
+• 𝐃𝚘𝚗'𝚝 𝚍𝚛𝚊𝚐 𝚖𝚎 𝚒𝚗𝚝𝚘 𝚍𝚛𝚊𝚖𝚊, 𝚞 𝚌𝚊𝚗 𝚝𝚊𝚕𝚔 𝚝𝚘 𝚖𝚎 𝚊𝚋𝚘𝚞𝚝 𝚒𝚝, 𝚍𝚒𝚜𝚌𝚞𝚜𝚜 𝚝𝚘 𝚖𝚎 𝚊𝚋𝚘𝚞𝚝 𝚒𝚝, 𝚒𝚕𝚕 𝚕𝚒𝚜𝚝𝚎𝚗, 𝚋𝚞𝚝 𝚓𝚞𝚜𝚝 𝚍𝚘𝚗𝚝 𝚏𝚘𝚛𝚌𝚎 𝚖𝚎 𝚝𝚘 𝚐𝚎𝚝 𝚒𝚗𝚟𝚘𝚕𝚟𝚎𝚍, 𝚞𝚗𝚕𝚎𝚜𝚜 𝚒𝚊𝚖 𝚊𝚕𝚛𝚎𝚊𝚍𝚢 𝚜𝚘𝚖𝚎𝚑𝚘𝚠 𝚒𝚗𝚟𝚘𝚕𝚟𝚎𝚍 𝚒𝚗 𝚒𝚝 𝚒𝚗 𝚝𝚑𝚎 𝚏𝚒𝚛𝚜𝚝 𝚙𝚕𝚊𝚌𝚎. 
+
 <img width="798" height="159" alt="1000084743" src="https://github.com/user-attachments/assets/9db42d38-d1ff-4c49-bd60-845be7ef161a" />
 
 • 𝐍ot a big fan of most slurs even if you can reclaim, please limit using them around me. 
