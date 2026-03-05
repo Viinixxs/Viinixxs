@@ -44,7 +44,7 @@
 
 • 𝐈dgaf about ships, i am indifferent towards most of them, though i do NOT tolerate problematic ships or ships considered as proship/darkship + people who support those DNI!.
 
-• 𝐈 make insults as a joke towards friends sometimes, please feel free to tell me if i ever said or done anything that hurts your feeling. I also make ALOT of brainrot jokes (67, alpha wolf, aura, konichiwassup! + other japanenglish words, etcetc) and sometimes poop jokes, apparently some ppl i've interacted with get annoyed cause of this, so jst uhh be aware ig. 
+• 𝐈 make insults as a joke towards friends sometimes, please feel free to tell me if i ever said or done anything that hurts your feeling. I also make ALOT of brainrot jokes (67, alpha wolf, aura, konichiwassup! + other japanenglish words, etcetc) and sometimes poop jokes, apparently some ppl i've interacted with got annoyed cause of this, so jst uhh be aware ig. 
 
 • 𝐖ant to contact me? add me in discord i am `@viinixxs`, My dms are always open, but expect late replies. For other socials (tiktok, insta, etc) please ask me for it directly, i don't like giving some of my socials away unless asked for it. 
 
