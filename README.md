@@ -42,7 +42,7 @@
 
 • 𝐍ot a big fan of most slurs even if you can reclaim, please limit using them around me. 
 
-• 𝐈dgaf about ships, i am indifferent towards most of them, though i do NOT tolerate problematic ships or ships considered as proship/darkship and people who support those DNI!.
+• 𝐈dgaf about ships, i am indifferent towards most of them, though i do NOT tolerate problematic ships or ships considered as proship/darkship + people who support those DNI!.
 
 • 𝐈 make insults as a joke towards friends sometimes, please feel free to tell me if i ever said or done anything that hurts your feeling.
 
