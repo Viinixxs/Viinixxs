@@ -2,6 +2,7 @@
 
 <img width="2000" height="1340" alt="1000084662" src="https://github.com/user-attachments/assets/03ae88d8-e147-43d2-a2d9-4f05b7d0dd0e" />
 
+First off i DON'T check who i followed back in my alt, so if anyones a problematic person, pls dont be afraid to tell me. 
 
 ### ❌ ; 𝐏o𝐧y𝐭o𝐰n 𝐒t𝐮f𝐟s
 
