@@ -38,7 +38,9 @@ First off i DON'T check who i followed back in my alt, so if anyones a problemat
 
 • 𝐈 forget people often, if ur one of my friends whom ive lost contact with, feel free to remind me of who you are, unless we ended on bad terms then i prolly won't talk to you. 
 
-• 𝐃𝚘n`t drag me into drama,u can talk to me about it, discuss with me about it, ill listen, but just don't force me to get involved, unless iam already somehow involved in it in the first place. 
+• 𝐃𝚘n`t drag me into drama,u can talk to me about it, discuss with me about it, ill listen, but just don't force me to get involved. 
+
+• I value communication if u ever feel displeased by my actions or need to tell me something, tell me immediately, dont ghost me, or expect me to catch hints quickly, iam not good at that. 
 
 <img width="798" height="159" alt="1000084743" src="https://github.com/user-attachments/assets/9db42d38-d1ff-4c49-bd60-845be7ef161a" />
 
@@ -46,7 +48,7 @@ First off i DON'T check who i followed back in my alt, so if anyones a problemat
 
 • 𝐈dgaf about ships, i am indifferent towards most of them, though i do NOT tolerate problematic ships or ships considered as proship/darkship + people who support those DNI!.
 
-• 𝐈 make insults as a joke towards friends sometimes, please feel free to tell me if i ever said or done anything that hurts your feeling. I also make ALOT of brainrot jokes (67, alpha wolf, aura, konichiwassup! + other japanenglish words, etcetc) and sometimes poop jokes though i will try to limit it if ur uncomf with it, just tell me, apparently some ppl i've interacted with got annoyed cause of this, so just uhh be aware ig. 
+• 𝐈 make insults as a joke towards friends sometimes, please feel free to tell me if i ever said or done anything that hurts your feeling. I also make ALOT of brainrot jokes (67, alpha wolf, aura, konichiwassup! + other japanenglish words, etcetc) and sometimes poop jokes though i will try to limit it if ur uncomf with it,apparently some ppl i've interacted with got annoyed cause of this, so just uhh be aware ig. 
 
 • 𝐖ant to contact me? add me in discord i am `@viinixxs`, My dms are always open, but expect late replies. For other socials (tiktok, insta, etc) please ask me for it directly, i don't like giving some of my socials away unless asked for it. 
 
