@@ -38,9 +38,9 @@ First off i DON'T check who i followed back in my alt, so if anyones a problemat
 
 • 𝐈 forget people often, if ur one of my friends whom ive lost contact with, feel free to remind me of who you are, unless we ended on bad terms then i prolly won't talk to you. 
 
-• 𝐃𝚘n`t drag me into drama,u can talk to me about it, discuss with me about it, ill listen, but just don't force me to get involved. 
+• 𝐃on`t drag me into drama,u can talk to me about it, discuss with me about it, ill listen, but just don't force me to get involved. 
 
-• I value communication if u ever feel displeased by my actions or need to tell me something, tell me immediately, dont ghost me, or expect me to catch hints quickly, iam not good at that. 
+• 𝐈 value communication if u ever feel displeased by my actions or need to tell me something, tell me immediately, dont ghost me, or expect me to catch hints quickly, iam not good at that. 
 
 <img width="798" height="159" alt="1000084743" src="https://github.com/user-attachments/assets/9db42d38-d1ff-4c49-bd60-845be7ef161a" />
 
